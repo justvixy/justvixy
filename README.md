@@ -10,6 +10,7 @@
 ꒰ᩧ৯  𐄑𓈒ֺּ  ◟‿ㅤ˚̣̣̣ ㅤI am 7teen , so under 15’s pls dni ♡
 _ _        𖥨᩠ׄˇ⌢. ۫ ·。 I strictly keep my friendships on ponytown staying on ponytown, I really do not trust anyone online anymore lmao , this isn’t to be rude it’s just safety and privacy  ◟ ͜͝ | ͜͝ | 𐄑𓈒ֺ  𓏼 e
 _ _        ꒰ྀི  i am both masculine and feminine, so i have skins that are different genders since im comfortable being both.  =͟͟͞ 。 ഒ໒꒱𓈒ׅ
+@frilledwings HI CAELIN YOU SO COOLIO JULIO
 <img width="540" height="230" alt="Image" src="https://github.com/user-attachments/assets/071dde25-7626-4c63-b2a9-ae3f800d11da" />
 ྀི ּ  ◟⌢。  me myself as a person am very awkward and nervous so sometimes idk what to say or I get shy, if i start acting awkward pls don’t judge me 😭   𖥨᩠ׄ݁
 ⌜  0&%ㅤ ⑅ㅤ/vanity  ⌟
