@@ -5,7 +5,7 @@
 <img width="1024" height="361" alt="Image" src="https://github.com/user-attachments/assets/c029ca83-0a3c-415f-a9a2-1cbd12aa62c9" />
 ྀི ּ  ◟⌢。  hello!! hehe i see u were curious about me    𖥨᩠ׄ݁
 ⌜  0&%ㅤ ⑅ㅤ/ my name is vixy and here’s some info u should know ab me before interacting ⌟
-꒰ᩧ৯ txt txt txt txt txt ໒꒱
+꒰ᩧ৯ 🐰🍭 ໒꒱
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/855ae075-d352-4a2b-ab8e-862e7b4b5724" />
 ꒰ᩧ৯  𐄑𓈒ֺּ  ◟‿ㅤ˚̣̣̣ ㅤI am 7teen , so under 15’s pls dni ♡
 _ _        𖥨᩠ׄˇ⌢. ۫ ·。 I strictly keep my friendships on ponytown staying on ponytown, I really do not trust anyone online anymore lmao , this isn’t to be rude it’s just safety and privacy  ◟ ͜͝ | ͜͝ | 𐄑𓈒ֺ  𓏼 e
