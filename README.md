@@ -2,40 +2,34 @@
 
 ##<!--
 
-- <img width="1080" height="572" alt="Image" src="https://github.com/user-attachments/assets/0b61d315-bb2b-4b95-bc6e-6e03aa8081a4" />
-𝐡𝐞𝐥𝐨𝐨𝐨𝐨𝐨!! 𝐩𝐥𝐬 𝐫𝐞𝐚𝐝 𝐝𝐢𝐬 𝐢𝐧𝐟𝐨 𝐛𝐞𝐟𝐨𝐫𝐞 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠 . . . 𝐯𝐞𝐫𝐲 𝐢𝐦𝐩𝐨𝐫𝐭𝐚𝐧𝐭
-<img width="635" height="635" alt="Image" src="https://github.com/user-attachments/assets/9240bb6e-99b2-45ce-ae8f-956f454c3f50" />
-𝐩𝐥𝐬 𝐡𝐚𝐧𝐝𝐥𝐞 𝐦𝐞 𝐰𝐢𝐭𝐡 𝐜𝐚𝐫𝐞.. 𝐈 𝐦𝐚𝐲 𝐜𝐨𝐦𝐞 𝐮𝐩 𝐭𝐨 𝐲𝐨𝐮 𝐚𝐧𝐝 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐛𝐞𝐜𝐨𝐦𝐞 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐛𝐮𝐭 𝐈 𝐚𝐦 𝐚𝐧𝐱𝐢𝐨𝐮𝐬 𝐚𝐧𝐝 𝐯𝐞𝐫𝐲 𝐬𝐡𝐲 𝐚𝐟𝐭𝐞𝐫 𝐦𝐲 𝐜𝐨𝐧𝐟𝐢𝐝𝐞𝐧𝐜𝐞 𝐰𝐞𝐚𝐫𝐬 𝐨𝐟𝐟 𝐚𝐧𝐝 𝐬𝐨𝐦𝐞𝐭𝐢𝐦𝐞𝐬 𝐝𝐨𝐧’𝐭 𝐤𝐧𝐨𝐰 𝐰𝐡𝐚𝐭 𝐭𝐨 𝐬𝐚𝐲. 𝐢𝐟 𝐈 𝐠𝐞𝐭 𝐚𝐰𝐤𝐰𝐚𝐫𝐝 𝐩𝐥𝐬 𝐝𝐨𝐧’𝐭 𝐣𝐮𝐝𝐠𝐞 𝐦𝐞, 𝐚𝐦 𝐭𝐫𝐲𝐢𝐧𝐠 𝐭𝐨 𝐦𝐚𝐤𝐞 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 ><..
-<img width="1179" height="1179" alt="Image" src="https://github.com/user-attachments/assets/64ec176e-6d01-4122-a113-c0450c99ba2f" />
-𝐈 𝐥𝐢𝐤𝐞 𝐜𝐫𝐞𝐞𝐩𝐲𝐩𝐚𝐬𝐭𝐚,𝐭𝐚𝐝𝐜,𝐦𝐚𝐝𝐨𝐤𝐚 𝐦𝐚𝐠𝐢𝐜𝐚,𝐝𝐝𝐥𝐜,𝐜𝐫𝐤 𝐚𝐧𝐝 𝐬𝐨 𝐦𝐮𝐜𝐡 𝐦𝐨𝐫𝐞!! :𝐃 𝐩𝐥𝐞𝐚𝐬𝐞 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐢𝐟 𝐲𝐨𝐮 𝐡𝐚𝐯𝐞 𝐚𝐧 𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭 𝐨𝐫 𝐬𝐨𝐦𝐞𝐭𝐡𝐢𝐧𝐠 𝐲𝐨𝐮 𝐥𝐢𝐤𝐞 𝐭𝐡𝐚𝐭 𝐲𝐨𝐮 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐭𝐚𝐥𝐤 𝐚𝐛𝐨𝐮𝐭, 𝐈’𝐥𝐥 𝐭𝐨𝐭𝐚𝐥𝐥𝐲 𝐬𝐢𝐭 𝐝𝐨𝐰𝐧 𝐚𝐧𝐝 𝐥𝐢𝐬𝐭𝐞𝐧!
-<img width="735" height="880" alt="Image" src="https://github.com/user-attachments/assets/2408959d-e032-4ed1-8d5d-26194b561e61" />
-𝐟𝐨𝐫 𝐦𝐲 𝐨𝐰𝐧 𝐬𝐚𝐟𝐞𝐭𝐲 𝐟𝐫𝐨𝐦 𝐩𝐚𝐬𝐭 𝐞𝐱𝐩𝐞𝐫𝐢𝐞𝐧𝐜𝐞𝐬, 𝐩𝐥𝐞𝐚𝐬𝐞 𝐝𝐨 𝐧𝐨𝐭 𝐚𝐬𝐤 𝐭𝐨 𝐭𝐚𝐤𝐞 𝐬𝐨𝐜𝐢𝐚𝐥𝐢𝐭𝐲 𝐭𝐨 𝐚𝐧𝐲 𝐝𝐢𝐟𝐟𝐞𝐫𝐞𝐧𝐭 𝐩𝐥𝐚𝐭𝐟𝐨𝐫𝐦𝐬 𝐚𝐬 𝐈 𝐠𝐞𝐧𝐞𝐫𝐚𝐥𝐥𝐲 𝐝𝐨 𝐧𝐨𝐭 𝐝𝐨 𝐭𝐡𝐚𝐭. 𝐈𝐟 𝐰𝐞 𝐚𝐫𝐞 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐨𝐧 𝐩𝐨𝐧𝐲𝐭𝐨𝐰𝐧 𝐰𝐞 𝐬𝐭𝐚𝐲 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐨𝐧𝐥𝐲 𝐨𝐧 𝐩𝐨𝐧𝐲𝐭𝐨𝐰𝐧, 𝐭𝐡𝐢𝐬 𝐢𝐬 𝐧𝐨𝐭 𝐭𝐨 𝐛𝐞 𝐫𝐮𝐝𝐞 , 𝐢𝐭’𝐬 𝐣𝐮𝐬𝐭 𝐬𝐚𝐟𝐞𝐭𝐲 ^^
-<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/67139a03-28c9-4d83-820d-6e7800a401f4" />
-𝐈 𝐚𝐦 𝐚𝐥𝐰𝐚𝐲𝐬 𝐟𝐫𝐞𝐞 𝐭𝐨 𝐜+𝐡+𝐤 :3 𝐝𝐨𝐧’𝐭 𝐛𝐞 𝐬𝐡𝐲 𝐭𝐨 𝐜𝐮𝐝𝐝𝐥𝐞 𝐰𝐢𝐭𝐡 𝐦𝐞 , 𝐈 𝐰𝐨𝐧’𝐭 𝐛𝐢𝐭𝐞 !! :]
-DO NOT INTERACT WITH ME IF YOU’RE HOMOPHOBIC, TRUMPIE , SUPPORT ICE, ZIONIST OR MAPS. I absolutely will not interact with people like that. thank you very much. 🚫🚫
-PLEASE DNC OR TAKE INSPO FROM SNY OF MY SKINS PLS! I WORK HARD ON THEM AND THEYRE ALL ORIGINAL 😓
-THANK YOU FOR READING !! 🤍🐰
+<img width="1024" height="361" alt="Image" src="https://github.com/user-attachments/assets/c029ca83-0a3c-415f-a9a2-1cbd12aa62c9" />
+ྀི ּ  ◟⌢。  hello!! hehe i see u were curious about me    𖥨᩠ׄ݁
+⌜  0&%ㅤ ⑅ㅤ/ my name is vixy and here’s some info u should know ab me before interacting ⌟
+꒰ᩧ৯ txt txt txt txt txt ໒꒱
+<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/855ae075-d352-4a2b-ab8e-862e7b4b5724" />
+꒰ᩧ৯  𐄑𓈒ֺּ  ◟‿ㅤ˚̣̣̣ ㅤI am 7teen , so under 15’s pls dni ♡
+_ _        𖥨᩠ׄˇ⌢. ۫ ·。 I strictly keep my friendships on ponytown staying on ponytown, I really do not trust anyone online anymore lmao , this isn’t to be rude it’s just safety and privacy  ◟ ͜͝ | ͜͝ | 𐄑𓈒ֺ  𓏼 e
+_ _        ꒰ྀི  i am both masculine and feminine, so i have skins that are different genders since im comfortable being both.  =͟͟͞ 。 ഒ໒꒱𓈒ׅ
+<img width="540" height="230" alt="Image" src="https://github.com/user-attachments/assets/071dde25-7626-4c63-b2a9-ae3f800d11da" />
+ྀི ּ  ◟⌢。  me myself as a person am very awkward and nervous so sometimes idk what to say or I get shy, if i start acting awkward pls don’t judge me 😭   𖥨᩠ׄ݁
+⌜  0&%ㅤ ⑅ㅤ/vanity  ⌟
+꒰ᩧ৯ I am in a lot of fandoms like alien stage,pjsk,madoka magica,tadc,mlp, nekopara,Minecraft yters, kpop and so much more. You can sit down with me and talk to me about your interests even if I’m not in the same fandom, I’ll still gladly listen and interact with you <3 ໒꒱
+<img width="1278" height="203" alt="Image" src="https://github.com/user-attachments/assets/e982a917-01c2-4d85-a6f6-9c67b60c3005" />
+꒰ᩧ৯  𐄑𓈒ֺּ  ◟‿ㅤ˚̣̣̣ ㅤyes I’m a heavy feminist , equal rights  
+lgbtq+ supporter and trump+ice hater. if u support any of those and don’t support equal rights or feminism pls dni ,I understand everyone has their own views but I also have my own and would not like to get involved with anyone like that.
 
+<img width="1000" height="563" alt="Image" src="https://github.com/user-attachments/assets/dffc2457-064c-426c-8159-24265b759492" />
 
-<!--
+ ּ  ◟⌢。
 
-- <img width="1080" height="572" alt="Image" src="https://github.com/user-attachments/assets/0b61d315-bb2b-4b95-bc6e-6e03aa8081a4" />
-ₕₑₗₒₒₒ!! ᵢf yₒᵤ wₐₙₜ ₜₒ ₗₑₐᵣₙ ₘₒᵣₑ ₐbₒᵤₜ ₘₑ, ₚₗₛ ᵣₑₐd ₜₕᵢₛ..
-<img width="635" height="635" alt="Image" src="https://github.com/user-attachments/assets/9240bb6e-99b2-45ce-ae8f-956f454c3f50" />
-ₚₗₛ ₕₐₙdₗₑ ₘₑ wᵢₜₕ cₐᵣₑ.. ᵢ ₘₐy cₒₘₑ ᵤₚ ₜₒ yₒᵤ bₑcₐᵤₛₑ ᵢ wₐₙₜ ₜₒ ₘₐₖₑ fᵣᵢₑₙdₛ, bᵤₜ ᵢ gₑₜ ₐₙₓᵢₒᵤₛ ₐₙd ₛₒₘₑₜᵢₘₑₛ dₒₙ’ₜ ₖₙₒw wₕₐₜ ₜₒ ₛₐy. ᵢf ᵢ ₐₘ ₐwₖwₐᵣd ₚₗₛ dₒₙ’ₜ ⱼᵤdgₑ ₘₑ ><…
-<img width="1179" height="1179" alt="Image" src="https://github.com/user-attachments/assets/64ec176e-6d01-4122-a113-c0450c99ba2f" />
-ᵢ ₕₐᵥₑ ₗₒₜₛ ₒf ᵢₙₜₑᵣₑₛₜₛ!! 
-ᵢ ₗᵢₖₑ cᵣₑₑₚyₚₐₛₜₐ, ddₗc , ₐₙᵢₘₑₛ ₗᵢₖₑ ₘₐdₒₖₐ ₘₐgᵢcₐ ₐₙd fᵣₒₘ ₘₑ ₜₒ yₒᵤ. ᵢ ₐₗₛₒ ₗᵢₖₑ ₛₕₒwₛ ₛᵤcₕ ₐₛ ₜₐdc ₐₙd ₑᵥₑᵣ ₐfₜₑᵣ ₕᵢgₕ !! C:
-ᵢf yₒᵤ ₗᵢₖₑ ₛₒₘₑₜₕᵢₙg ₐₙd wₐₙₜ ₜₒ ₜₐₗₖ ₐbₒᵤₜ ᵢₜ, dₒₙ’ₜ b ₐfᵣₐᵢd!!
-<img width="735" height="880" alt="Image" src="https://github.com/user-attachments/assets/2408959d-e032-4ed1-8d5d-26194b561e61" />
-fₒᵣ ₘy ₒwₙ ₛₐfₑₜy fᵣₒₘ ₚₐₛₜ ₑₓₚₑᵣᵢₑₙcₑₛ, ᵢ dₒₙ’ₜ ₜₐₖₑ ₒₙₗᵢₙₑ fᵣᵢₑₙdₛₕᵢₚₛ ₜₒ dᵢffₑᵣₑₙₜ ₚₗₐₜfₒᵣₘₛ.. :c 
-ₜₕₑᵣₑ ₐᵣₑ ₗₒₜₛ ₒf wₑᵢᵣd ₚₑₒₚₗₑ ₒₙₗᵢₙₑ ₕᵢddₑₙ by ₚₑᵣₛₒₙₐₗᵢₜᵢₑₛ ₐₙd ᵢ dₒₙ’ₜ wₐₙₜ ₜₒ gₒ ₜₕᵣₒᵤgₕ ₐₙyₜₕᵢₙg ₛᵢₘᵢₗₐᵣ ₜₒ ₚₐₛₜ ₑᵥₑₙₜₛ. ₚₗₑₐₛₑ ᵣₑₛₚₑcₜ ₜₕᵢₛ!! 😓
-<img width="1200" height="1200" alt="Image" src="https://github.com/user-attachments/assets/7fafdd4c-c251-48b8-87d3-723cc9eb42f6
-ᵢ ₐₘ ₐₗwₐyₛ fᵣₑₑ ₜₒ c₊ₕ₊ₖ!! :₃
-ₐₘ ᵥₑᵣy fᵣᵢₑₙdₗy, ₛₒ ₚₗₛ dₒₙ’ₜ bₑ ₐfᵣₐᵢd ₜₒ ₕₐₙg ₒᵤₜ wᵢₜₕ ₘₑ ₑᵥₑₙ ᵢf yₒᵤ dₒₙ’ₜ ₕₐᵥₑ ₐₙy ᵢₙₜₑᵣₑₛₜ ᵢₙ ₜₐₗₖᵢₙg!! ᵢ ₜₐₖₑ ₙₒ ₒffₑₙₛₑ ₕₑₕₑ
-<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/67139a03-28c9-4d83-820d-6e7800a401f4" />
-ₜₕₐₙₖ ᵤ ₛₒ ₘᵤcₕ fₒᵣ ᵣₑₐdᵢₙg ₘy dₑₛcᵣᵢₚₜᵢₒₙ 🤍🤍 ₙₒw ₜₕₐₜ yₒᵤ’ᵥₑ fᵢₙᵢₛₕₑd ᵢₜ, ₜᵣy ₜₐₗₖᵢₙg ₜₒ ₘₑ!!
+<img width="204" height="137" alt="Image" src="https://github.com/user-attachments/assets/6911e582-1f61-4d38-af35-bea0eefbafbd" />
 
-DₙC ₐₙY ₒCₛ ᵢ ₕₐᵥₑ ₘₐDₑ ᵢₙ ₙₒ WₐY ₒᵣ Fₒᵣₘ Wₕₐₜₛₒₑᵥₑᵣ.
+   𖥨᩠ׄ݁
+⌜  0&%ㅤ ⑅ㅤ/vanity  ⌟
+꒰ᩧ৯ 
 
-" />
+<img width="513" height="487" alt="Image" src="https://github.com/user-attachments/assets/cb2fb487-277b-416e-928e-68419fdc4b08" />
+wan wan says hi
+
+_ _        𖥨᩠ׄˇ⌢. ۫ ·。     ◟ ͜͝ | ͜͝ | 𐄑𓈒ֺ  𓏼 e
+_ _        ꒰ྀི   tysm for reading my page and pls feel free to follow me, or interact with me!! I’ll gladly become friends with u!! c:   =͟͟͞ 。  ഒ໒꒱𓈒ׅ
