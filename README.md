@@ -19,7 +19,7 @@ _ _        ꒰ྀི  i am both masculine and feminine, so i have skins that are
 lgbtq+ supporter and trump+ice hater. if u support any of those and don’t support equal rights or feminism pls dni ,I understand everyone has their own views but I also have my own and would not like to get involved with anyone like that.
 
 <img width="1000" height="563" alt="Image" src="https://github.com/user-attachments/assets/dffc2457-064c-426c-8159-24265b759492" />
-
+I’m gonna explode AHHHHHHHHHHH
  ּ  ◟⌢。
 
 <img width="204" height="137" alt="Image" src="https://github.com/user-attachments/assets/6911e582-1f61-4d38-af35-bea0eefbafbd" />
@@ -27,9 +27,12 @@ lgbtq+ supporter and trump+ice hater. if u support any of those and don’t supp
    𖥨᩠ׄ݁
 ⌜  0&%ㅤ ⑅ㅤ/vanity  ⌟
 ꒰ᩧ৯ 
-
+🧁🧁🧁🧁🧁🧁🧁🧁🧁🧁🧁🧁🧁🧁
 <img width="513" height="487" alt="Image" src="https://github.com/user-attachments/assets/cb2fb487-277b-416e-928e-68419fdc4b08" />
-wan wan says hi
+wan wan says hi!!! 🤍
+
+
+——————————————————————
 
 _ _        𖥨᩠ׄˇ⌢. ۫ ·。     ◟ ͜͝ | ͜͝ | 𐄑𓈒ֺ  𓏼 e
 _ _        ꒰ྀི   tysm for reading my page and pls feel free to follow me, or interact with me!! I’ll gladly become friends with u!! c:   =͟͟͞ 。  ഒ໒꒱𓈒ׅ
