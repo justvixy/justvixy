@@ -13,7 +13,7 @@ _ _        ꒰ྀི  i am both masculine and feminine, so i have skins that are
 <img width="540" height="230" alt="Image" src="https://github.com/user-attachments/assets/071dde25-7626-4c63-b2a9-ae3f800d11da" />
 ྀི ּ  ◟⌢。  me myself as a person am very awkward and nervous so sometimes idk what to say or I get shy, if i start acting awkward pls don’t judge me 😭   𖥨᩠ׄ݁
 ⌜  0&%ㅤ ⑅ㅤ/vanity  ⌟
-꒰ᩧ৯ I am in a lot of fandoms like alien stage,pjsk,madoka magica,tadc,mlp, nekopara,Minecraft yters, kpop and so much more. You can sit down with me and talk to me about your interests even if I’m not in the same fandom, I’ll still gladly listen and interact with you <3 ໒꒱
+꒰ᩧ৯ I am in a lot of fandoms like alien stage,creepy pasta, pjsk,madoka magica,tadc,mlp, nekopara,Minecraft yters, kpop and so much more. You can sit down with me and talk to me about your interests even if I’m not in the same fandom, I’ll still gladly listen and interact with you <3 ໒꒱
 <img width="1278" height="203" alt="Image" src="https://github.com/user-attachments/assets/e982a917-01c2-4d85-a6f6-9c67b60c3005" />
 ꒰ᩧ৯  𐄑𓈒ֺּ  ◟‿ㅤ˚̣̣̣ ㅤyes I’m a heavy feminist , equal rights  
 lgbtq+ supporter and trump+ice hater. if u support any of those and don’t support equal rights or feminism pls dni ,I understand everyone has their own views but I also have my own and would not like to get involved with anyone like that.
