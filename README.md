@@ -1,4 +1,4 @@
-## important info. . . 🍭🐰
+## about the user . . 🍭🐰
 
 ##<!--
 
@@ -10,7 +10,7 @@
 ꒰ᩧ৯  𐄑𓈒ֺּ  ◟‿ㅤ˚̣̣̣ ㅤI am 7teen , so under 15’s pls dni ♡
 _ _        𖥨᩠ׄˇ⌢. ۫ ·。 I strictly keep my friendships on ponytown staying on ponytown, I really do not trust anyone online anymore lmao , this isn’t to be rude it’s just safety and privacy  ◟ ͜͝ | ͜͝ | 𐄑𓈒ֺ  𓏼 e
 _ _        ꒰ྀི  i am both masculine and feminine, so i have skins that are different genders since im comfortable being both.  =͟͟͞ 。 ഒ໒꒱𓈒ׅ
-<img width="540" height="230" alt="Image" src="https://github.com/user-attachments/assets/071dde25-7626-4c63-b2a9-ae3f800d11da" />
+<img width="800" height="600" alt="Image" src="https://github.com/user-attachments/assets/054ce395-5820-4258-9c20-0981d2d506fc" />
 ྀི ּ  ◟⌢。  me myself as a person am very awkward and nervous so sometimes idk what to say or I get shy, if i start acting awkward pls don’t judge me 😭   𖥨᩠ׄ݁
 ⌜  0&%ㅤ ⑅ㅤ/vanity  ⌟
 ꒰ᩧ৯ I am in a lot of fandoms like alien stage,creepy pasta, pjsk,madoka magica,tadc,mlp, nekopara,Minecraft yters, kpop and so much more. You can sit down with me and talk to me about your interests even if I’m not in the same fandom, I’ll still gladly listen and interact with you <3 ໒꒱
