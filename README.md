@@ -14,13 +14,10 @@ kiᔕᔕ ᗰe ᗩgᗩiᑎ !! <img width="26" height="21" alt="Image" src="https:
 ꒰ᩧ৯ 🐰🍭 ໒꒱
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/855ae075-d352-4a2b-ab8e-862e7b4b5724" />
 ꒰ᩧ৯  𐄑𓈒ֺּ  ◟‿ㅤ˚̣̣̣ ㅤI am 7teen , so under 15’s pls dni ♡
-_ _     <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b69d7d72-dd21-47ec-a2ba-39d381dfe5dc" />   𖥨᩠ׄˇ⌢. ۫ ·。 I strictly keep my friendships on ponytown staying on ponytown, I really do not trust anyone online anymore lmao , this isn’t to be rude it’s just safety and privacy  ◟ ͜͝ | ͜͝ | 𐄑𓈒ֺ  𓏼 e <img width="480" height="271" alt="Image" src="https://github.com/user-attachments/assets/70cfbd91-0982-4b6b-9dd9-c92b1752463a" />
+_ _     <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b69d7d72-dd21-47ec-a2ba-39d381dfe5dc" />   𖥨᩠ׄˇ⌢. ۫ ·。 I strictly keep my friendships on ponytown staying on ponytown, I really do not trust anyone online anymore lmao , this isn’t to be rude it’s just safety and privacy  ◟ ͜͝ | ͜͝ | 𐄑𓈒ֺ  𓏼 e 
+
  hold m hand forever and ever ok?
 <img width="800" height="600" alt="Image" src="https://github.com/user-attachments/assets/7bc57cad-dc1d-4bce-bd36-4654537e03b7" />
-🧁 ⌢⌢⌢⌢ 🧁  ⌢⌢⌢⌢ 🧁 
-
-
-<img width="1199" height="686" alt="Image" src="https://github.com/user-attachments/assets/2191f064-5c55-4d8d-a0de-11357b1debe6" />
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
@@ -33,10 +30,12 @@ _ _     <img width="26" height="21" alt="Image" src="https://github.com/user-att
 _ _        ꒰ྀི 
 i am both masculine and feminine, so i have skins that are different genders since im comfortable being both.  =͟͟͞ 。 ഒ໒꒱𓈒ׅ
 <img width="800" height="600" alt="Image" src="https://github.com/user-attachments/assets/054ce395-5820-4258-9c20-0981d2d506fc" />
+🧁 ⌢⌢⌢⌢ 🧁  ⌢⌢⌢⌢ 🧁 
 ྀི ּ  ◟⌢。  me myself as a person am very awkward and nervous so sometimes idk what to say or I get shy, if i start acting awkward pls don’t judge me 😭   𖥨᩠ׄ݁
 ⌜  0&%ㅤ ⑅ㅤ/vanity  ⌟ <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b69d7d72-dd21-47ec-a2ba-39d381dfe5dc" />
+🧁 ⌢⌢⌢⌢ 🧁  ⌢⌢⌢⌢ 🧁 
 ꒰ᩧ৯ I am in a lot of fandoms like alien stage,creepy pasta, pjsk,madoka magica,tadc,mlp, nekopara,Minecraft yters, kpop and so much more. You can sit down with me and talk to me about your interests even if I’m not in the same fandom, I’ll still gladly listen and interact with you <3 ໒꒱
-<img width="1278" height="203" alt="Image" src="https://github.com/user-attachments/assets/e982a917-01c2-4d85-a6f6-9c67b60c3005" />
+<img width="1278" height="203" alt="Image" src="https://github.com/user-attachments/assets/e982a917-01c2-4d85-a6f6-9c67b60c3005" /> 🧁 ⌢⌢⌢⌢ 🧁  ⌢⌢⌢⌢ 🧁 
 ꒰ᩧ৯  𐄑𓈒ֺּ  ◟‿ㅤ˚̣̣̣ ㅤyes I’m a heavy feminist , equal rights  
 lgbtq+ supporter and trump+ice hater. if u support any of those and don’t support equal rights or feminism pls dni ,I understand everyone has their own views but I also have my own and would not like to get involved with anyone like that.
 
