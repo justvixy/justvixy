@@ -1,7 +1,10 @@
 ## about the user . . 🍭🐰
-
-##<!--
-꒰ 🦴 ꒱ ↳  ♡︎ ⌇\$$ color{ffec2}{\{kiᔕᔕ ᗰe ᗩgᗩiᑎ !!}} $$ ✦  ✦ fav food ✦
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/f1a5575a-68f5-4daf-be5c-b1d4adc5c201" />
+<img width="188" height="25" alt="Image" src="https://github.com/user-attachments/assets/46e9c425-5ff9-47d8-95c1-1048d3cbbbb3" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/807007d4-6b60-400d-905a-08eb406b119f" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/1375c152-82b7-46a6-89fe-24e8ff0802c5" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/60e88800-0d4e-4855-802f-15595b7501bb" />
+꒰ 🦴 ꒱ ↳  ♡︎ ⌇{kiᔕᔕ ᗰe ᗩgᗩiᑎ !!}} $$ ✦  ✦ ✦
 
 <img width="1024" height="361" alt="Image" src="https://github.com/user-attachments/assets/c029ca83-0a3c-415f-a9a2-1cbd12aa62c9" />
 ྀི ּ  ◟⌢。  hello!! hehe i see u were curious about me    𖥨᩠ׄ݁
