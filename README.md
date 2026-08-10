@@ -4,7 +4,9 @@
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/807007d4-6b60-400d-905a-08eb406b119f" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/1375c152-82b7-46a6-89fe-24e8ff0802c5" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/60e88800-0d4e-4855-802f-15595b7501bb" />
-꒰ 🦴 ꒱ ↳  ♡︎ ⌇{kiᔕᔕ ᗰe ᗩgᗩiᑎ !!}} $$ ✦  ✦ ✦
+
+꒰ 🦴 ꒱ ↳  ♡︎ ⌇
+kiᔕᔕ ᗰe ᗩgᗩiᑎ !! <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b69d7d72-dd21-47ec-a2ba-39d381dfe5dc" />✦  ✦ ✦
 
 <img width="1024" height="361" alt="Image" src="https://github.com/user-attachments/assets/c029ca83-0a3c-415f-a9a2-1cbd12aa62c9" />
 ྀི ּ  ◟⌢。  hello!! hehe i see u were curious about me    𖥨᩠ׄ݁
@@ -28,12 +30,15 @@ lgbtq+ supporter and trump+ice hater. if u support any of those and don’t supp
 ꒰ᩧ৯ 
  ּ  ◟⌢。
 
-<img width="204" height="137" alt="Image" src="https://github.com/user-attachments/assets/6911e582-1f61-4d38-af35-bea0eefbafbd" />
+<img width="828" height="546" alt="Image" src="https://github.com/user-attachments/assets/692861cd-6729-4ac3-a5c0-08f32a150765" />
 
    𖥨᩠ׄ݁
-⌜  0&%ㅤ ⑅ㅤ/vanity  ⌟
+⌜  0&%ㅤ ⑅ㅤ/ I l o v e y o u ~  ⌟ <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b69d7d72-dd21-47ec-a2ba-39d381dfe5dc" />
 ꒰ᩧ৯ 
-🧁🧁🧁🧁🧁🧁🧁🧁🧁🧁🧁🧁🧁🧁
+🧁🧁🧁
+🧁🧁🧁
+🧁🧁🧁.        
+🧁🧁🧁
 <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/76215da5-657c-41ef-8da1-e2da8dba111c" />
 ^ ~ ^ ~ ^ ~ ^ ~ ^ ~ ^ ~
 if u like kpop or the group illit pls hmu pls like im begging atp
